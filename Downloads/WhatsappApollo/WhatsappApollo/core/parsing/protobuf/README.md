@@ -1,0 +1,1 @@
+# No intentes rrobar el codigo, La mayoria esta Ofuscado con más de 100k lineas de codigo, De otra forma no tienes ni tendras acceso a el, Conformate con estar pagando la modica cantidad bien barata que dejo :3
